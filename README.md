@@ -1,3 +1,2 @@
 # thatha-internship
-
-OTHA THATHA
+punda SM
