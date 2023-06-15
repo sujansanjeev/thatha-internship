@@ -1,2 +1,2 @@
 # thatha-internship
-punda SM
+
